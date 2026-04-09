@@ -17,6 +17,11 @@ Markdown-only project. No build/test/lint commands.
 - Branch: `claude/nomad-talks-podcast-system-bt8UJ`
 - Commit and push every change to that branch
 
+## Skills
+- `/humanise` — run on any copy before finalising. Removes AI tells, adds human rhythm.
+- `/token-saver` — re-run if project grows significantly
+- `/compact-status` — quick state check
+
 ## Token Rules
 - Responses: terse. Lead with answer. No preamble.
 - No "I'll now...", "Let me...", "Great!" filler
