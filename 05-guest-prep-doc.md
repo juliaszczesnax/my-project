@@ -14,7 +14,7 @@ Read this once, do the checklist, and show up as yourself. That's genuinely all 
 
 See you on the other side of the mic.
 
-— [YOUR NAME]
+— Julia
 
 ---
 
@@ -52,7 +52,7 @@ Please check all of these before we start. Bad audio is the only thing that can 
 - [ ] **Camera on** — we record video too. Doesn't need to be perfect, just present.
 - [ ] **Test your setup** — click the Riverside link when you get it and do a quick audio check before we start
 
-**If something goes wrong technically:** just message me on Instagram **[YOUR INSTAGRAM HANDLE]** and we'll sort it fast.
+**If something goes wrong technically:** just message me on Instagram **@juliaszczesnax** and we'll sort it fast.
 
 ---
 
@@ -129,11 +129,11 @@ So I can tag you correctly in the Reel and episode post. Just Instagram and/or L
 
 Any questions before the session? Hit me up:
 
-- **Instagram:** [YOUR INSTAGRAM HANDLE]
+- **Instagram:** @juliaszczesnax
 - **Email:** [YOUR EMAIL] *(optional)*
 
 Don't overthink this. Your story is already good enough. Just show up, be real, and let's have a genuine conversation.
 
 See you soon 🌍
 
-— [YOUR NAME], Nomad Talks
+— Julia, Nomad Talks

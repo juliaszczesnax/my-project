@@ -15,11 +15,11 @@ Hey [FIRST NAME]! 👋
 
 Came across your profile and genuinely loved [SPECIFIC THING — e.g. "your post about leaving your 9-5 to freelance in Bali" / "the way you talk about building in public"].
 
-I host a podcast called **Nomad Talks** — interview series for people building a life of freedom. Each episode is called a Voyage. Think real conversations about the nomad life, freelancing, money, mindset — no fluff.
+I host a podcast called **Nomad Talks**. It's an interview series for people building a life of freedom. Each episode is a Voyage. Real conversations about the nomad life, freelancing, money, mindset. No fluff.
 
 I think your story would make an incredible Voyage episode.
 
-No pressure at all if it's not the right time — but if you're open to it, I'd love to have a quick 15-min chat to see if it's a good fit for both of us.
+No pressure if it's not the right time. But if you're open to it, I'd love a quick 15-min chat to see if it's a good fit for both of us.
 
 What do you think? 🌍
 
@@ -37,12 +37,12 @@ What do you think? 🌍
 
 Amazing, really happy you're up for it! 🙌
 
-The 15-min chat is super casual — just a chance for us to get to know each other a bit, make sure it's the right fit for both sides, and talk through what the episode could look like.
+The 15-min chat is super casual. Just a chance to get to know each other a bit, make sure it's the right fit for both of us, and talk through what the episode could look like.
 
 No prep needed at all. Just a vibe check, basically.
 
 Here's the link to book whenever works for you:
-👉 **[CALENDLY EVENT 1 LINK — Quick Chat 15 min]**
+👉 **https://calendly.com/covoyagemedia/intro-chat**
 
 Excited to connect! ✌️
 
@@ -58,16 +58,16 @@ Excited to connect! ✌️
 
 ---
 
-This is going to be such a good Voyage episode — really loved our chat. ✨
+Really loved our chat and I think this is going to be such a good episode. ✨
 
 Here's what happens next:
 
 **1. Book your recording slot here:**
 👉 **[CALENDLY EVENT 2 LINK — 60-min Recording]**
 
-**2. Send me a short bio** — 3 to 5 bullet points about who you are, what you do, and your story. I'll use this for your intro.
+**2. Send me a short bio.** Just 3 to 5 bullet points about who you are, what you do, and your story. I'll use it for your intro.
 
-**3. On the day:** good lighting, earphones in, quiet space — we record on Riverside.fm (super simple, just a browser link).
+**3. On the day:** good lighting, earphones in, quiet space. We record on Riverside.fm. It's just a browser link, nothing to download.
 
 After we record I'll cut a Reel from your episode, post it on Instagram, and add you as a collaborator so it hits your feed too. 🎬
 
