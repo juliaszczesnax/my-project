@@ -63,7 +63,7 @@ Really loved our chat and I think this is going to be such a good episode. ✨
 Here's what happens next:
 
 **1. Book your recording slot here:**
-👉 **[CALENDLY EVENT 2 LINK — 60-min Recording]**
+👉 **https://calendly.com/covoyagemedia/nomad-talks-podcast-60-min**
 
 **2. Send me a short bio.** Just 3 to 5 bullet points about who you are, what you do, and your story. I'll use it for your intro.
 
